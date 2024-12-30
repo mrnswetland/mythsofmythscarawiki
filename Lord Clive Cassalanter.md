@@ -1,0 +1,1 @@
+Human male noble of [[./Dynnegall|Dynnegall]] and father of [[./Jake Cassalanter|Jake Cassalanter]]. Very work focused and is intent on having his children follow in his footsteps. Head of the Cassalanter household, the family responsible for the platinum mines and exports.
