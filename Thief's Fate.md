@@ -1,0 +1,1 @@
+According to legend, a mortal sailor once stole [[./Thassa|Thassa]]’s bident and used it to sink an enemy fleet. Thassa cared nothing for the vanquished fleet, but punished the sailor for his thievery by turning his family into eels. The sailor tried to care for the eels, but they blamed him for their fate and disappeared into the sea, leaving the sailor weeping on the shore.
