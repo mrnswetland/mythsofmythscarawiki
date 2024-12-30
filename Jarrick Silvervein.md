@@ -1,0 +1,2 @@
+![[./Art/Pasted image 20240920212330.png|Pasted image 20240920212330.png]]
+[[./Halfling|Halfling]] male noble of [[./Tilinthin|Tilinthin]] responsible for funding [[./Reva Highmoore|Reva Highmoore]]. Funds many community centers and parks, and owns most of the land in the northward of [[./Tilinthin|Tilinthin]]. True form is that of an Abhorrent Overlord, a demonic creature obsessed with greed. Has a crime organization called [[./The Aristocrats|The Aristocrats]].
