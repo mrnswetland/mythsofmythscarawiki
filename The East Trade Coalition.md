@@ -1,0 +1,1 @@
+The East Trade Coalition is a coalition of major cities in the [[./Ozmium Coastlands|Ozmium Coastlands]], including [[./Acacia|Acacia]], [[./Vinerus|Vinerus]], [[./Fort Dine|Fort Dine]], and [[./Quaris|Quaris]]
