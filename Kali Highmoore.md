@@ -1,0 +1,1 @@
+High elf woman and grandmother to [[./Reva Highmoore|Reva Highmoore]] and [[./Eric Highmoore|Eric Highmoore]]. She was responsible for the fall of [[./Ruination|Ruination]] and the death of her great-grandson.
