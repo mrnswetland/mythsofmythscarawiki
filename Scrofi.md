@@ -1,0 +1,2 @@
+Scrofi, unlike wereboar who are ill-tempered and vulgar brutes, are a kinder folk. As humanoids, they are stocky and muscular, with short, stiff hair. A wereboar infects other creatures indiscriminately, relishing the fact that the more its victims resist the curse, the more savage and bestial they become, to the disdain of the Scrofi who are commonly confused with them.
+![[./Art/Pasted image 20240920211659.png|Pasted image 20240920211659.png]]
