@@ -1,0 +1,1 @@
+Old elven man who uses illusion to increase his age. The owner of [[./Geoffry|Geoffry]]'s estate and the [[./Twisted Tavern|Twisted Tavern]].
