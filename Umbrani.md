@@ -1,0 +1,3 @@
+There is only a single generation of umbrani, and it is the one the Shadow Lords are still creating. These great and terrible umbral lords wield incredible power, including that to create life. This power does not vanish when they sleep, or even when they die, and during these times when their conscious minds are suppressed they can create horrors. The least of these are the umbrani, lesser devils of flesh and shadow that consider their creators to be their parents and masters.
+
+![[./Art/Pasted image 20240920211903.png|Pasted image 20240920211903.png]]
