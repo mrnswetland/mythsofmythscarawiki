@@ -1,0 +1,1 @@
+Half-elven female noble and former wife of [[./Constantine|Constantine]]. She planned the deaths of [[./Constantine|Constantine]] and his siblings, with only the former surviving. Eventually became the acting High Illustrator via underhanded means and had their plans to corrupt the citizens of [[./Dynnegall|Dynnegall]] and ascend to lichdom exposed by the party.
