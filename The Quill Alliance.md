@@ -1,0 +1,1 @@
+The Quill Alliance is a coalition of major cities in the [[./Ozmium Coastlands|Ozmium Coastlands]], including [[./Dynnegall|Dynnegall]], [[./Irinade|Irinade]], [[./Tilinthin|Tilinthin]], [[./Asaria|Asaria]], [[./Turmen|Turmen]], [[./Urbangon|Urbangon]], and [[./Urdoun|Urdoun]].
