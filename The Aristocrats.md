@@ -1,0 +1,1 @@
+A crime organization founded by [[./Jarrick Silvervein|Jarrick Silvervein]]. Based in [[./Tilinthin|Tilinthin]], several individuals have found their way into it's fold, now under Jarricks payroll.
