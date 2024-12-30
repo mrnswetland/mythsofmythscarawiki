@@ -1,0 +1,1 @@
+A mercenary band of pirates run by [[./Dobbs Keetes|Dobbs Keetes]]. Though piracy has long since been outlawed, most of the senior crew had dreams of sailing the high seas in their youths, and now work as hired hands for adventurers to scratch the itch.
