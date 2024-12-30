@@ -1,0 +1,1 @@
+High elf male noble of [[./Dynnegall|Dynnegall]] and father of [[./Haldir|Haldir]]. Once seemingly an uptight noble with little care for his family, it was revealed that when the chips are down, he will pick those he loves over his position. Head of the Holagwyn household, the family responsible for Osmuim and Iridium exports, as well as resource conservation.
