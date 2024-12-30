@@ -1,0 +1,1 @@
+Blue-tiefling male detective. Well dressed paladin. Investigated the connection between [[./Reva Highmoore|Reva Highmoore]] and [[./Jarrick Silvervein|Jarrick Silvervein]], resulting in him hiring the party to gather tangible evidence against [[./Jarrick Silvervein|Jarrick Silvervein]] by gaining his trust.
