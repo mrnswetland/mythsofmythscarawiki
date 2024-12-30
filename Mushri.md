@@ -1,0 +1,3 @@
+The forms of the Fey are as varied as they are strange and wondrous. Some forms may seem to some as wild and frightful, while others may appear beautiful and fair. Mushri may sit on either side of that spectrum, depending on one’s point of view. These fey not only bear the likeness of mushrooms, they also possess a deep affinity for them and the ecologies that they thrive in. Mushri see with different eyes the ways in which all the world is connected, giving them a unique perspective on life. After they leave their groves in search for greater truths, The Mushri adventure with a yearning curiosity of the world.
+
+![[./Art/Pasted image 20240920211847.png|Pasted image 20240920211847.png]]
