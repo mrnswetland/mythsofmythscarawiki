@@ -1,0 +1,1 @@
+**God of Misfortune, Harbinger of [[./Ruinam Caelo|Ruinam Caelo]]**
