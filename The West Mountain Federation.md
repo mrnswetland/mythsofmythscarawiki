@@ -1,0 +1,1 @@
+The West Mountain Federation is a coalition of major cities in the [[./Ozmium Coastlands|Ozmium Coastlands]], including [[./Kartan|Kartan]], [[./Roanoin|Roanoin]], [[./St. Harbor|St. Harbor]], [[./Gulveg|Gulveg]], and [[./Borda|Borda]].
