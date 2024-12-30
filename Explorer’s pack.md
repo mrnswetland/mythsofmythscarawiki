@@ -1,0 +1,3 @@
+Type: Equipment Pack Cost: 10 gp Weight: 55 lbs
+
+An Explorer’s Pack contains the following items: [Backpack](https://www.dndbeyond.com/equipment/399-backpack), [Bedroll](https://www.dndbeyond.com/equipment/420-bedroll), 2 flasks of [Oil](https://www.dndbeyond.com/equipment/393-oil), 10 days of [Rations](https://www.dndbeyond.com/equipment/411-rations), [Rope](https://www.dndbeyond.com/equipment/415-rope), [Tinderbox](https://www.dndbeyond.com/equipment/434-tinderbox), 10 [Torches](https://www.dndbeyond.com/equipment/437-torch), and [Waterskin](https://www.dndbeyond.com/equipment/442-waterskin).
