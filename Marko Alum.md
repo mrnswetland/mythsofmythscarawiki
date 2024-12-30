@@ -1,0 +1,1 @@
+[[./Human|Human]] male noble and the father of [[./Constantine|Constantine]]. An elected official, the High Illustrator acts as the negotiator between the citizens of [[./Dynnegall|Dynnegall]]. He has been bedridden due to the actions of [[./Reva Highmoore|Reva Highmoore]] and is slowly on the road to recovery.
