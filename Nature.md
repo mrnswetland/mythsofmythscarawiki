@@ -1,0 +1,1 @@
+Intelligence (Nature) allows you to recall lore about terrain, plants, animals, and weather.
