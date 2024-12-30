@@ -1,0 +1,7 @@
+Mothfolk are by far one of the most reclusive and mysterious of the races, to the point where in some places they are merely considered the stuff of myth and legend. The greatest philosophers and seers of the mothfolk are found among them, and they carry a deep reverence for nature. Graceful and beautiful creatures, these mothfolk have semi-translucent wings hued in green, blue, pink, or yellow, and their exoskeletons are covered by a thick coat of soft white fur.
+
+Most mothfolk dwell in small forest villages hidden among the trees. Mothfolk hunt game, gather food, and grow vegetables, and their skill and magic allow them to support themselves without the need for clearing and plowing land. They are talented artisans, crafting finely worked clothes and art objects. Their contact with outsiders is usually limited, though a few mothfolk make a good living by trading crafted items for metals (which they have no interest in mining).
+
+Mothfolk encountered outside their own lands are commonly traveling minstrels, artists, or sages. Human nobles compete for the services of mothfolk instructors to teach swordplay or magic to their children.
+
+![[./Art/Pasted image 20240920211733.png|Pasted image 20240920211733.png]]
